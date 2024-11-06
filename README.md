@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @BERT253
+. 👋 Hi, I’m @BERT253
 - 👀 I’m interested to learn why empathy isn't researched more.
-- 🌱 I’m currently learning to mix do chores with play bridge.
+- 🌱 I enjoy alternating between chores and Solitaire.
 - 💞️ I’m looking to collaborate on HTML and WORD.
 - 📫 How to reach me: hubert_heylen@outlook.com
 
